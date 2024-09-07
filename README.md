@@ -8,7 +8,7 @@ I'm a massive nerd in:
   - Rap (hip hop, hardcore, horrorcore, aggro, trap), I'm a huge fan of [Słoń](https://www.youtube.com/watch?v=gL0yQD1IcWA). I listen to other artists like [Eminem](https://www.youtube.com/watch?v=xVuYQCa9saw), [Haftbefehl](https://www.youtube.com/watch?v=AdLiqQQWdks), [VOLO](https://www.youtube.com/watch?v=ZitnLGRZcog), [Phunk B](https://www.youtube.com/watch?v=BAtGQQk3E20), [Miszel](https://www.youtube.com/watch?v=2DsnFscQu0w), [G-Ko](https://www.youtube.com/watch?v=IU2g2QuZBL4), [18 Karat](https://www.youtube.com/watch?v=qVh94dt-4iw), and many more.
   - Electronic (big beat, rave, DnB, trance, techno, party)
 
-I play guitar, I'm able to do [harsh vocals](https://en.wikipedia.org/wiki/Death_growl). Sometimes I watch movies. I don't play many games unless they're with friends. I can come off as quite serious, but in reality, I'm totally unserious and actually a little crazy 😂. I type with my left index finger and right thumb on my phone.
+I play guitar, I do [harsh vocals](https://en.wikipedia.org/wiki/Death_growl). Sometimes I watch movies. I don't play many games unless they're with friends. I can come off as quite serious, but in reality, I'm totally unserious and actually a little crazy 😂. I type with my left index finger and right thumb on my phone.
 
 I'm also a softie at heart, I tend to edit my messages a lot because I want to get the right sentiment across, especially when I'm nervous. On the other hand, I've also learnt to be assertive and confident when I have to be.
 
