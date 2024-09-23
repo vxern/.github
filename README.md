@@ -12,4 +12,6 @@ I play guitar, I do [harsh vocals](https://en.wikipedia.org/wiki/Death_growl). S
 
 I'm also a softie at heart, I tend to edit my messages a lot because I want to get the right sentiment across, especially when I'm nervous. On the other hand, I've also learnt to be assertive and confident when I have to be.
 
-You can find me on Discord, my username is `@vxern`. I spend a lot of my time on the [Learn Romanian](https://discord.gg/kBj3a7n) community.
+You can find me on Discord, my username is `@vxern`. I spend a lot of my time on the [Learn Romanian](https://learnromanian.co.uk) community.
+
+[Portfolio](https://vxern.dev) · [Learn Romanian](https://learnromanian.co.uk) [Learn Armenian](https://learnarmenian.co.uk) · [WordCollector](https://wordcollector.co.uk)
