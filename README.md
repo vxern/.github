@@ -14,4 +14,4 @@ I'm also a softie at heart, I tend to edit my messages a lot because I want to g
 
 You can find me on Discord, my username is `@vxern`. I spend a lot of my time on the [Learn Romanian](https://learnromanian.co.uk) community.
 
-[Portfolio](https://vxern.dev) · [Learn Romanian](https://learnromanian.co.uk) [Learn Armenian](https://learnarmenian.co.uk) · [WordCollector](https://wordcollector.co.uk)
+[Portfolio](https://vxern.dev) · [Learn Romanian](https://learnromanian.co.uk) · [Learn Armenian](https://learnarmenian.co.uk) · [WordCollector](https://wordcollector.co.uk)
