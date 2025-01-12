@@ -1,4 +1,4 @@
-I'm a guy from the Silesian region of Poland, I live in the UK. I'm 20.
+My name is Dorian. I'm Silesian, I live in the UK, I'm 21.
 
 I'm a massive nerd in:
 - Programming: JavaScript/TypeScript, Dart, Ruby and Gleam. Dart's been my favourite since I found it four years ago.
