@@ -1,6 +1,6 @@
-My name is Dorian. I'm Silesian, I live in the UK, I'm 21.
-
 # About Me
+
+My name is Dorian. I'm [Silesian](https://en.wikipedia.org/wiki/Silesians), I live in the UK, I'm 21.
 
 I'm a massive nerd in:
 - Programming: JavaScript/TypeScript, Dart, Ruby and Gleam. Dart's been my favourite since I found it four years ago.
